@@ -1,2 +1,2 @@
 # computerClub
-YHSTAR
+YgHSTAR
