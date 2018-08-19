@@ -1,2 +1,3 @@
 # computerClub
-YgHSTAR
+YgHS
+asdgfhghjkl1qwertyuizxcvbn
